@@ -1,0 +1,1 @@
+Hi! I'm Khanne, but you can call me "K" for short. I'm interested in playing badminton. I also enjoyed watching kdrama and writing poems in my free time. 
